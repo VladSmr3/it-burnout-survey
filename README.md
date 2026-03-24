@@ -15,12 +15,15 @@
 ### Варианты участия:
 1. **Пройти через форму (в ней не требуются никакие персональные данные, кроме пола и возраста):**
  
- [Ссылка на Яндекс форму:](https://forms.yandex.ru/u/69c0fef195add5efc99d2099) [https://forms.yandex.ru/u/69c0fef195add5efc99d2099](https://forms.yandex.ru/u/69c0fef195add5efc99d2099)
+ [Ссылка на Яндекс форму:](https://forms.yandex.ru/u/69c0fef195add5efc99d2099) 
+ [https://forms.yandex.ru/u/69c0fef195add5efc99d2099](https://forms.yandex.ru/u/69c0fef195add5efc99d2099)
  
 2.  **Отправить ответы вручную:**
    
    Если вам удобнее, вы можете **скопировать вопросы ниже и отправить подходящие ответы** 
+   
    [мне в Telegram](https://t.me/SmorodinVlad)
+   
    или на мою почту vladsmor3@vk.com
  
 ### Список вопросов :
